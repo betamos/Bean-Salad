@@ -76,5 +76,5 @@ even in small quantities. Eat at your own risk.
 
 While the Bean Salad is a Nirvana for the consumers themselves, an
 unfortunate side effect is that it acts as a propellant for the
-gastro-intestinal system. Bean responsible!
+gastro-intestinal system. Bean responsibly!
 
